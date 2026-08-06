@@ -6,4 +6,8 @@ Saat ini saya berusia 16 tahun
 -Nama Lengkap : Muhammad Arman Ramdhan  
 -Kelas : XI RPL 2  
 -Hobi : Mendengarkan musik  
--Cita cita : Jadi orang suksesss  
+-Cita cita : Jadi orang suksesss 
+
+Beberapa orang mengatakan bahwa saya hidup merebut kebehagiaan orang lain. Tetapi saya sendiri saja terlalu sering mengalah untuk orang lain.  
+
+
